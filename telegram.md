@@ -7,6 +7,22 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/18 18:27
+---
+
+## alonews — post 118691
+
+<div align="center">
+  <a href="telegram/content/alonews_118691_1778252264.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روس‌اتم : فعالیت‌های نیروگاه هسته‌ای بوشهر داره کم‌کم دوباره راه می‌افته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/18 18:22
 ---
 
