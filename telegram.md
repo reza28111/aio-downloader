@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 09:02
+---
+
+## VahidOOnLine — post 239211
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239211_1778391175.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی زحمتکش، رییس انجمن داروسازان خراسان رضوی گفت: «با کمبود داروی بیماران خاص و صعب العلاج، اعصاب، قلبی و تنفسی مواجهیم و قیمت برخی داروها بین ۲۰ تا ۴۰۰ درصد افزایش یافته است.»
+
+او ادامه داد: «در حال حاضر مشکل عمده ما در کمبود دارو، مربوط به داروخانه‌های خاص است که در کار تامین داروهای حیاتی و خاص بیماران سخت درمان (صعب العلاج) هستند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 336397
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336397_1778391176.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با موج گسترده اخراج و تعدیل نیرو در ایران، احمد میدری، وزیر تعاون، کار و رفاه اجتماعی، از پیام اخیر منسوب به مجتبی خامنه‌ای قدردانی کرد و آن را «مرهمی» بر دغدغه‌ها و چالش‌های جامعه کارگری دانست. در این پیام بر اولویت مصرف کالاهای ساخت داخل و پرهیز صاحبان کسب‌وکار از تعدیل و جداسازی نیروی کار تا حد امکان تاکید شده است.
+جزییات بیشتر با روزبه بوالهری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336396
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336396_1778391178.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اعتماد گزارش داد قیمت برخی اقلام دارویی در ایران طی هفته‌های اخیر بین ۳۰ تا ۳۰۰ درصد افزایش یافته و بیماران، به‌ویژه مبتلایان به سرطان و بیماری‌های خاص، با بحران تامین دارو روبه‌رو هستند.
+گفت‌وگو با کیارش آرامش، پزشک و متخصص پزشکی اجتماعی و اخلاق زیستی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336395
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336395_1778391180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم «سرحد» ساخته پرویز صیاد، سینماگر و هنرمند پیشکسوت ایرانی، همزمان با تاسیس بنیاد میراث هنری پرویز صیاد در لس‌آنجلس به نمایش درآمده است. این فیلم که سال ۱۳۶۶ ساخته شد، امروز با نگاهی پیش‌گویانه، روایت‌هایی آشنا از زندگی و دغدغه‌های جامعه مهاجران ایرانی را بازتاب می‌دهد.
+نیلوفر منصوری، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336394
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336394_1778391182.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان با برگزاری تجمعی مقابل ساختمان شهرداری کلگری کانادا، به قطع اینترنت و تشدید روند اعدام‌ها در ایران اعتراض کردند. حمایت از شاهزاده رضا پهلوی و شعار «یک ملت در گروگان» از محورهای اصلی این تجمع اعتراضی بود.
+سپیدار ولیان، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336393
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336393_1778391184.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی زحمتکش، رییس انجمن داروسازان خراسان رضوی گفت: «با کمبود داروی بیماران خاص و صعب العلاج، اعصاب، قلبی و تنفسی مواجهیم و قیمت برخی داروها بین ۲۰ تا ۴۰۰ درصد افزایش یافته است.»
+
+او ادامه داد: «در حال حاضر مشکل عمده ما در کمبود دارو، مربوط به داروخانه‌های خاص است که در کار تامین داروهای حیاتی و خاص بیماران سخت درمان (صعب العلاج) هستند.»
+https://iranintl.com/202605100169
+</div>
+
+## IranianMinds — post 19870
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19870_1778391184.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست ترامپ: @IranianMinds
+</div>
+
+## alonews — post 118978
+
+<div align="center">
+  <a href="telegram/content/alonews_118978_1778391185.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈استفاده از وسایل نقلیه الکتریکی به سرعت در سراسر آفریقا در حال گسترش است، که اتیوپی رهبری آن را بر عهده دارد و توسط چین تامین می‌شود، زیرا افزایش شدید قیمت سوخت و کمبودهای مرتبط با جنگ ایران کشورها را به سمت گزینه‌های حمل و نقل ارزان‌تر و پاک‌تر سوق می‌دهد، گزارش خبرگزاری AP.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118977
+
+<div align="center">
+  <a href="telegram/content/alonews_118977_1778391185.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بازگشت «ویزاکارت» و «مسترکارت» به سوریه بعد از ۱۵ سال
+
+
+🔴 قبل از این هم سوئیفت (سامانه انتقال پول بین بانک های جهان) به سوریه بازگشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 08:53
 ---
 
