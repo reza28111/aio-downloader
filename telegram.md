@@ -7,6 +7,147 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 13:43
+---
+
+## WithYashar — post 10916
+
+<div align="center">
+  <a href="telegram/content/WithYashar_10916_1778494387.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیر، نخست وزیر بریتانیا : می‌دونم مردم و حتی کشور ازم ناراضی شدن ولی قصد ندارم استفعا بدم و می‌خوام ثابت کنم که منتقدها اشتباه میکنن. @withyashar
+</div>
+
+## WithYashar — post 10915
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیر، نخست وزیر بریتانیا : می‌دونم مردم و حتی کشور ازم ناراضی شدن ولی قصد ندارم استفعا بدم و می‌خوام ثابت کنم که منتقدها اشتباه میکنن.
+@withyashar
+</div>
+
+## WithYashar — post 10914
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لوله گاز یا ترور هدفمند ؟! مسئله این است
+خبر گزاری مهر : لحظاتی پیش، وقوع انفجاری در یکی از منازل مسکونی واقع در خیابان جهانگیری اراک، منجر به تخریب ساختمان مسکونی شد.
+تیم‌های امدادی در حال حاضر در محل حادثه حضور دارند و عملیات ایمن‌سازی و آواربرداری را آغاز کرده‌اند.
+علت دقیق این انفجار و همچنین تعداد احتمالی مصدومان و خسارات وارده، در دست بررسی کارشناسان است.
+@withyashar
+</div>
+
+## WithYashar — post 10913
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرودگاه شیراز الان @withyashar
+</div>
+
+## DW_Farsi — post 124553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 آمستردام تبلیغات گوشت را ممنوع کرد
+آمستردام اولین شهری است که تبلیغات محصولات بسیار آلاینده، از جمله گوشت و محصولات مرتبط با سوخت‌های فسیلی را ممنوع کرد. آیا چنین اقدامی رفتار مردم را تغییر خواهد داد؟
+
+#DWEnvironment
+
+@dw_farsi
+</div>
+
+## BBCPersian — post 280741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+هر زمان که به اینترنت وصل می‌شوید، کسی در حال گردآوری اطلاعاتی است که از خود به جا می‌گذارید؛ چه ارائه‌دهنده خدمات اینترنتی شما باشد، چه سرور صفحه‌ای که از آن بازدید می‌کنید، یا مرورگری که با آن به این صفحه دسترسی دارید.
+
+همه این داده‌ها به شرکت‌ها کمک می‌کند رفتار مشتریان خود را بهتر بشناسند و راهبردها و محصولاتی طراحی کنند که نیازهای مصرف‌کنندگان را دقیق‌تر برآورده کند.
+
+به همین شکل، از داده‌ها می‌توان برای شناسایی افرادی نیز استفاده کرد که تهدید تلقی می‌شوند. ایالات متحده از همین روش برای یافتن پناهگاه اسامه بن‌لادن در پاکستان بهره برد.
+
+https://bbc.in/4eFt50H
+📸GettyImages / NurPhoto via Getty Images/ AFP via Getty Images
+@BBCPersian
+</div>
+
+## Hranews — post 112878
+
+<div align="center">
+  <img src="telegram/content/Hranews_112878_1778494388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرکل راه و شهرسازی اردبیل در خصوص آمار حاشیه نشینی در این استان اعلام کرد که ۶۷ محله به مساحت ۱،۹۳۰ هکتار در سکونتگاه‌های غیررسمی واقع شده است. به گفته محبوب حیدری، یک سوم از جمعیت شهری اردبیل در سکونت‌گاه‌های غیررسمی، سکونت‌گاه‌هایی با بافت‌های تاریخی، بافت ناکارآمد و بافت ناسازگار شهری ساکن هستند.
+
+از سوی دیگر، صدیف بدری، عضو هیئت رئیسه مجلس شورای اسلامی با اشاره به ضرورت نوسازی بافت‌های فرسوده در تمام استان‌ها، گفت: حدود ۲۲ تا ۲۳ میلیون نفر از مردم در بافت‌های فرسوده و مسکن‌های ناپایدار زندگی می‌کنند که این نشان دهنده اهمیت نوسازی و بهسازی بافت فرسوده است.
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 119236
+
+<div align="center">
+  <a href="telegram/content/alonews_119236_1778494389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور فرانسه، امانوئل ماکرون، برای دویدن صبحگاهی به نایروبی، کنیا رفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119235
+
+<div align="center">
+  <a href="telegram/content/alonews_119235_1778494391.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کیر استارمر می‌گوید دولت قانونی را برای ملی کردن صنعت فولاد بریتانیا معرفی خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119234
+
+<div align="center">
+  <a href="telegram/content/alonews_119234_1778494391.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈داوود بیگی نژاد، نایب رئیس اتحادیه املاک تهران: با آگهی در سایت‌ها قیمت مسکن را بالا می‌برند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119233
+
+<div align="center">
+  <a href="telegram/content/alonews_119233_1778494392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رادیوی ارتش اسرائیل به نقل از مقامات نظامی تأیید کرده است که در حملۀ پهپادی حزبالله، یک سامانۀ گنبد آهنین دچار آسیب شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119232
+
+<div align="center">
+  <a href="telegram/content/alonews_119232_1778494392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کیر استارمر : اگر انگلیس وارد جنگ با ایران می‌شد، با آن درگیر می‌شد، «اما من هرگز این کار را نخواهم کرد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 13:32
 ---
 
