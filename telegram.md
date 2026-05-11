@@ -7,6 +7,199 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 14:42
+---
+
+## VahidOOnLine — post 239504
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239504_1778497963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا سلیمی، عضو هیات رییسه مجلس، درباره محاصره دریایی بنادر و سواحل جنوب ایران از سوی آمریکا گفت جمهوری اسلامی «حتما در جهت شکستن حصر دریایی» اقدام خواهد کرد و «سیلی محکمی» به دشمنان خواهد زد.
+
+او گفت که آتش‌بس «نباید یک‌طرفه باشد» و افزود: «حتما باید در این بخش نیز سیلی جانانه‌ای به دشمنان بزنیم. دشمنان نشان دادند که زبانی غیر از زور نمی‌فهمند و باید با سیلی آنها را بیدار کرد چراکه با دیپلماسی و گفت‌وگو از خواب غفلت بیدار نمی‌شوند.»
+
+سلیمی ادامه داد: «تنها چیزی که دشمنان را بیدار می‌کند غرش توپ و غریو موشک است و اگر بخواهیم با لبخند با دشمنان برخورد کنیم جری‌تر و جسورتر خواهند شد.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341516
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341516_1778497964.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: U.S. passengers exposed to hantavirus arrive at University of Nebraska Medical Center to begin a 42-day quarantine.
+
+Shuttle buses were seen pulling into a hospital garage, while at least one ambulance continued past the facility to another location down the street.
+</div>
+
+## FoxNewsTwitter — post 341515
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341515_1778497964.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A retired Army veteran just broke a 54-year television record on 'The Price Is Right.'
+
+Vanesa McCaskell pulled in $227,500 and a trip to Morocco worth $12,650 in a single pricing game, the largest daytime win in the show’s history, during the Mother’s Day episode.
+
+By the end of her run, McCaskell took home over $240,000 in cash and prizes thank to the show's new 'Lion’s Share' game.
+</div>
+
+## IranIntlTV — post 336633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۲۱ اردیبهشت
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336632
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336632_1778497965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های رسیده به ایران‌اینترنشنال نشان می‌دهد گرانی قهوه در کافه‌ها و کاهش مشتریان، باعث تعدیل و اخراج پرسنل و همچنین تعطیلی برخی از کافه‌ها شده‌ است.
+
+لیلا سعادتی، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336631
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336631_1778497967.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا سلیمی، عضو هیات رییسه مجلس، درباره محاصره دریایی بنادر و سواحل جنوب ایران از سوی آمریکا گفت جمهوری اسلامی «حتما در جهت شکستن حصر دریایی» اقدام خواهد کرد و «سیلی محکمی» به دشمنان خواهد زد.
+
+او گفت که آتش‌بس «نباید یک‌طرفه باشد» و افزود: «حتما باید در این بخش نیز سیلی جانانه‌ای به دشمنان بزنیم. دشمنان نشان دادند که زبانی غیر از زور نمی‌فهمند و باید با سیلی آنها را بیدار کرد چراکه با دیپلماسی و گفت‌وگو از خواب غفلت بیدار نمی‌شوند.»
+
+سلیمی ادامه داد: «تنها چیزی که دشمنان را بیدار می‌کند غرش توپ و غریو موشک است و اگر بخواهیم با لبخند با دشمنان برخورد کنیم جری‌تر و جسورتر خواهند شد.»
+iranintl.com/202605115658
+</div>
+
+## FarsiVOA — post 217423
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217423_1778497968.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای اتحادیه اروپا تصمیمی را برای پایان دادن به تعلیق جزئی توافق همکاری میان جامعه اقتصادی اروپا و جمهوری عربی سوریه تصویب کرد.
+
+بر اساس گزارش رویترز، شورای اروپا دوشنبه اعلام کرد که این تصمیم، نشانه‌ای سیاسی و روشن از تعهد اتحادیه اروپا به ازسرگیری تعامل با سوریه و حمایت از بهبود اقتصادی آن است. شورای اروپا افزود که این اقدام، گامی مهم در جهت تقویت روابط دوجانبه میان اتحادیه اروپا و سوریه محسوب می‌شود.
+
+پیشتر وزرای کشورهای عضو اتحادیه اروپا روز دوشنبه ۶ اسفند در نشستی در بروکسل، پایتخت بلژیک، بر سر تعلیق تحریم‌های سوریه در حوزه انرژی مشتمل بر نفت، گاز، برق و تحریم‌های مرتبط با امور حمل‌ونقل علیه این کشور توافق کرده بودند.
+
+بر پایه این توافق، تحریم‌ها علیه دارایی‌های مسدود شده پنج بانک سوری رفع شده، محدودیت‌ها علیه بانک مرکزی سوریه برچیده شده و معافیت‌های کنونی با هدف تسهیل ارائه کمک‌های بشردوستانه به سوریه به شکل نامحدود تمدید شده است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 13900
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13900_1778497968.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اسرائیل به فارسی:
+
+نخست وزیر نتانیاهو صدای شما را می‌شنود:
+در ایران، خیابان‌ها را به نام من نامگذاری می‌کنند. آیا این را می‌دانید؟ البته به نام رئیس جمهور ترامپ هم، بدیهی است، زیرا او رهبری مبارزه را بر عهده دارد. من فارسی صحبت نمی‌کنم اما آن‌ها مرا «بی‌بی جون»، بی‌بی عزیزم صدا می‌زنند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 280751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرگزاری رویترز گزارش کرد که سه نفتکش با خاموش کردن سامانه‌های اعلام موقعیت برای جلوگیری از حملات ایران توانسته‌اند از تنگه هرمز عبور کنند و به آب‌های بین‌المللی بروند.
+
+براساس داده‌های کشتیرانی کپلر و ال‌اس‌ای‌جی، سه نفتکش حامل نفت خام در هفته گذشته و روز یکشنبه با خاموش کردن سامانه‌های اعلام موقعیت از تنگه هرمز خارج شدند.
+
+این داده‌ها نشان می‌دهد که دو نفتکش بسیار بزرگ آگیوس فانوریوس ۱ و کیارا ام، که هر کدام دو میلیون بشکه نفت خام عراق را حمل می‌کنند، یکشنبه از این تنگه عبور کردند.
+
+پیش از ایران اعلام کرده بود که نفتکش آگیوس فانوریوس با هماهنگی از تنگه هرمز عبور کرده است. این تفتکش پیش از این دو بار سعی کرده بود که از این تنگه عبور کند که موفق نشده بود.
+https://bbc.in/3PePlEc
+@BBCPersian
+</div>
+
+## Hranews — post 112880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم بازداشت پیشوا آقاپور در ارومیه
+ 
+
+❗️
+❗️
+❗️
+❗️
+❗️ – با گذشت ۶۸ روز از دستگیری پیشوا آقاپور، شهروند اهل بوکان، او همچنان در بازداشت به سر می‌برد. وی اخیرا از زندان ارومیه به یکی از بازداشتگاه‌های امنیتی در این شهر منتقل شده است.
+ 
+ادامه مطلب
+ 
+#پیشوا_آقاپور
+ 
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 119260
+
+<div align="center">
+  <a href="telegram/content/alonews_119260_1778497970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت سد کرج، که در آستانه پر شدن است
+
+
+🔴سازمان آب و فاضلاب گفته که ۴۰ درصد کلا پر شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119259
+
+<div align="center">
+  <a href="telegram/content/alonews_119259_1778497970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نماینده حزب کارگر دیوید اسمیت خواستار استعفای نخست‌وزیر بریتانیا، کیر استارمر، پس از سخنرانی او شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119258
+
+<div align="center">
+  <a href="telegram/content/alonews_119258_1778497970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈همراه اول و رایتل و ایرانسل دارن اینترنت پرو میفروشن، یعنی همون فیلترشکن اما کسی بهشون چیزی نمیگه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 14:32
 ---
 
