@@ -7,6 +7,98 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 15:12
+---
+
+## WithYashar — post 10921
+
+<div align="center">
+  <a href="telegram/content/WithYashar_10921_1778499770.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 8882
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_8882_1778499772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇶🇦 دومین محموله صادراتی LNG قطر اکنون در حال عبور از تنگه هرمز است.
+
+🚢کشتی حامل LNG با پرچم سنگاپور به نام MIHZEM (شماره IMO: 9986635) از پایانه صادراتی رأس لفان قطر حرکت کرده و به مقصد پاکستان در حال حرکت است. این کشتی از مسیر کشتیرانی تحت کنترل ایران در این آبراه راهبردی عبور می‌کند.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 336641
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336641_1778499773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از ایرانیان مقیم ایتالیا، یکشنبه ۲۰ اردیبهشت، در اعتراض به اعدام‌های جمهوری اسلامی در شهر بولونیا تجمع کردند.
+
+گزارش صدف باغبان، خبرنگار
+
+@iranintltv
+</div>
+
+## RadioFarda — post 157059
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157059_1778499775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸عیسی بزرگ‌زاده، روز دوشنبه ۲۱ اردیبهشت در یک نشست خبری با اشاره به وضعیت ذخایر آب در ایران،‌ گفت: در حال حاضر حدود ۳۵ میلیون نفر از جمعیت کشور با مشکل کم‌آبی مواجه هستند و به همین دلیل همچنان برای عبور از این شرایط، نیازمند صرفه‌جویی در مصرف آب هستیم.
+
+🔸بزرگ‌زاده با اشاره به تفاوت‌های منطقه‌ای در بارش‌ها گفت: توزیع بارش در کشور بسیار نامتوازن است و با وجود آنکه در استان‌هایی مانند بوشهر، هرمزگان، ایلام و کرمان بارش‌های بسیار خوبی ثبت شده، اما در استان‌هایی مانند تهران، قم، یزد، مرکزی و اصفهان با بارش بسیار کم مواجه بوده‌ایم.
+
+🔸او با بیان اینکه در حال حاضر ۱۱ استان کشور همچنان شرایط بارشی زیر نرمال دارند تاکید کرد که «به هیچ‌وجه نمی‌توان گفت کشور وارد دوره ترسالی شده است.»
+
+🔸در دهه‌های اخیر خشکسالی مداوم، برداشت بی‌رویه از آب‌های زیرزمینی و سوء‌مدیریت سبب شده است که بسیاری از شهرهای بزرگ ایران با بحران کم آبی روبرو شوند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 19937
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19937_1778499776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قطع اینترنت در ایران وارد روز ۷۳ شد.
+۱۷۲۸ ساعت.
+
+@IranianMinds
+</div>
+
+## alonews — post 119272
+
+<div align="center">
+  <a href="telegram/content/alonews_119272_1778499776.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر نفت ایران: ما برنامه‌هایی برای مقابله با پیامدهای تحریم‌های آمریکا تدوین کرده‌ایم و تولید ما در طول ۴۰ روز جنگ کاهش نیافته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119269
+
+<div align="center">
+  <a href="telegram/content/alonews_119269_1778499776.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات هوایی اسرائیل شهرهای صدّیقین، عرب‌سلیم و النمریه در جنوب لبنان را هدف قرار داده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 15:09
 ---
 
